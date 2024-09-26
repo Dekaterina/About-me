@@ -4,9 +4,10 @@ I'm learning a new profession.
 
 **I really like it.**
 
-![super](C:\Users\007\Desktop\Нетология\imadge)
+![super](super-smailiki-kartinki-1-1.jpg)
 
 Sometimes it can be difficult, but still fun!!
 
-![still fun]([c:\Users\007\Desktop\Нетология\funny-klev-club-p-smeshnie-kartinki-uchis-uchitsya-30.jpg](../Нетология/imadge)
-)
+![funny](funny-kartinki-2.jpg)
+
+
